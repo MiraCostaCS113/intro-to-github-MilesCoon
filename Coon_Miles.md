@@ -1,1 +1,1 @@
-
+My name is Miles Coon. I am 20 years old, in my second year at MiraCosta, but in my third year in college. I am currently a Computer Science major, but I am looking to branch out into other options that may make it more feasible to get into the schools of my choice.
